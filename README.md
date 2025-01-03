@@ -1,4 +1,4 @@
-# Miside Battery Charger# Miside Battery Charger
+# Miside Battery Charger
 Just Misside Battery Charger
 # WARNING:
 I AM NOT THE OWNER OF THE APK FILE, THE APK FILE IS CREATED BY BLACKSHARK COMPANY. 
